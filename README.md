@@ -5,4 +5,4 @@ NEXUS is a clean, fast desktop launcher that brings all your applications and ga
 ---------------------------------------------------------------------------------
 
 
-🫡 To download the launcher by clicking The Nexus.exe file from the releases section
+😘 Download the launcher by clicking The Nexus.exe file from the releases section 🥰
